@@ -13,4 +13,4 @@ Utilizo esse espaço para minha organização e compartilhamento dos meus projet
 00001116723876sp@al.educacao.sp
 gov.br
 
-![](https://github.com/nalaraaa004/nalaraaa004/assets/171801804/81c23bdb-bf20-4c21-8c67-6841b145a9fe)
+![](https://github.com/nalaraaa004/nalaraaa004/assets/171801804/3510d875-aee0-443b-b2ab-13c4975cc83e)
